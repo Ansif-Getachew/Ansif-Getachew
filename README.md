@@ -44,6 +44,8 @@ Git & GitHub
 
 VS Code
 
+Cursor
+
 📫 How to Reach Me
 
 Instagram: https://instagram/lil_spidey_senser
