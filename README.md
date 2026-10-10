@@ -48,6 +48,6 @@ Cursor
 
 📫 How to Reach Me
 
-Instagram: https://instagram/lil_spidey_senser
+Instagram: https://instagram/starboy.glitch
 
 Email: ansifgetachew@gmail.com
