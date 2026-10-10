@@ -48,6 +48,6 @@ Cursor
 
 📫 How to Reach Me
 
-Instagram: https://instagram/starboy.glitch
+Instagram: https://www.instagram.com/starboy.glitch
 
 Email: ansifgetachew@gmail.com
